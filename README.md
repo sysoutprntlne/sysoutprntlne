@@ -1,1 +1,1 @@
-<img src="https://tenor.com/view/ちいかわ-chiikawa-ちいかわ-うさぎ-gif-14014159316181813590" width="500" alt="App Demo">
+<img width="498" height="281" alt="ちいかわ-chiikawa" src="https://github.com/user-attachments/assets/6b362a57-581e-412b-bdca-db5d0ebcaf6e" />
