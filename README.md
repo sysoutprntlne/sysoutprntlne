@@ -1,2 +1,1 @@
-[<div class="tenor-gif-embed" data-postid="14014159316181813590" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/%E3%81%A1%E3%81%84%E3%81%8B%E3%82%8F-chiikawa-%E3%81%A1%E3%81%84%E3%81%8B%E3%82%8F-%E3%81%86%E3%81%95%E3%81%8E-gif-14014159316181813590">ちいかわ Chiikawa GIF</a>from <a href="https://tenor.com/search/%E3%81%A1%E3%81%84%E3%81%8B%E3%82%8F-gifs">ちいかわ GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-](https://tenor.com/view/ちいかわ-chiikawa-ちいかわ-うさぎ-gif-14014159316181813590)
+![Alt Text](https://tenor.com/view/ちいかわ-chiikawa-ちいかわ-うさぎ-gif-14014159316181813590)
